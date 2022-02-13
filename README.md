@@ -1,5 +1,5 @@
 
-# LUCKY TOU 🎲
+# LUCKY YOU 🎲
 
 ## Our Goal
 
